@@ -1,4 +1,4 @@
-#  
+#  shrink for brainrots Script best is the best shrink for brainrots Script, featuring one-hit kill and instant win. Safe and powerful for all your
 
 
 
